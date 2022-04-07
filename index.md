@@ -33,7 +33,7 @@ So here's a checklist of the lectures and homework I still need to do.
 
 # LTCS 52
 
-** NOTHING **
+**NOTHING**
 
 # MOTIVATIONAL QUOTE TO GET IT ALL DONE 
 ![](https://www.goalcast.com/wp-content/uploads/2020/12/Inspirational-Quotes-from-The-Office.jpg)
